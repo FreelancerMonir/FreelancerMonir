@@ -1,6 +1,6 @@
 ![Web Developer](https://media.licdn.com/dms/image/D5616AQHBCfmE0OvUsg/profile-displaybackgroundimage-shrink_350_1400/0/1686853708079?e=1692230400&v=beta&t=ADKFij1fHrza78g9APsjTgsAMH1QWVJS5My9YCHOxC8)
 
-### Hi there 👋, My name MD.MONIR HOSSEN
+### Hi there 👋, My name MD. MAZARUL ISLAM MONIR
 #### Web Developer
 
 
